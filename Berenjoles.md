@@ -7,7 +7,7 @@
 * 6 rebanadas de tocino
 * 250g chorizo
 
-1. Partir en cubos las berenjenas y remos Jaír en agua con sal por 20min
+1. Partir en cubos las berenjenas y remojar en agua con sal por 20min
 2. Partir en tiritas el tocino y poner a dorar en una cazuela
 3. Agregar ajo, cebolla y tomates picados 
 4. Una vez sofritos, agregar chorizo 
